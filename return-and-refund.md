@@ -125,3 +125,5 @@ If You have any questions about our Returns, Exchanges, and Refunds Policy, or t
 * **By email:** `contact@swedishstudiosgames.com`
 * **By visiting this page on our website:** `https://contact.swedishstudiosgames.com`
 * **For Fourthwall Defect/Quality Claims Only:** `contact@support.store.swedishstudiosgames.com` or `https://store.swedishstudiosgames.com/pages/contact`
+
+And yes, This was written by AI, Because we can't currently afford to hire an attorney, and/or lawyer to write this.
