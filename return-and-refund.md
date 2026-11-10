@@ -92,8 +92,8 @@ Once You have contacted Us with Your Receipt and received return confirmation, *
 You should send the Goods directly to the following address:
 
 > **SwedishStudios Games**  
-> **Krongjutarvägen 17**  
-> **Västerås 726 31, Västmanland**  
+> **Aluminiumvägen 5**  
+> **Västerås 726 30, Västmanland**  
 > **Sweden**
 
 * **WARNING — Do NOT Ship to the Fourthwall Warehouse:** Do **not** mail taste/sizing returns back to the third-party print facility address printed on Your package's shipping label or to Fourthwall's Santa Monica, CA PO Box. Fourthwall warehouses automatically destroy unauthorized returns, and **We will not issue a refund or exchange for items sent to the wrong address**.
